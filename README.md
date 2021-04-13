@@ -4,5 +4,5 @@ I am a Database Architect/ DBA  having put in a number of years experience in bu
 
 My hobbies are singing Indian Movie songs in multiple indian languages.  Besides, I spend time with my children in tennis and trekking. 
 
-I am a resident of New Jersey close to the shore.  
+I am a resident of New Jersey, living close to the shore.  
 
